@@ -1,1 +1,1 @@
-# rsschohttps://github.com/bogdashovmaxim/rsschool-cv.gitol-cv
+https://bogdashovmaxim.github.io//rsschool-cv
